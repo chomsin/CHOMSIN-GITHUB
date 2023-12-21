@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @chomsin 
+- 👋 Hi, I’m @chomsin
 - 👀 I’m interested in KhonKaen
-- 🌱 I’m currently learning Thailand 
+- 🌱 I’m currently learning Thailand
 - 💞️ I’m looking to collaborate on Thailand Japan Korean
 - 📫 How to reach me 40110
 
